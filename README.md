@@ -1,5 +1,5 @@
-Discord: HeadNoob#3775
+Discord: HeadNoob
 GitHub: HeadNoob
 osu! profile: HeadNoob
 
-I'm a fucking noob at coding
+not a noob at coding anymore I think
